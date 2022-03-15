@@ -1,3 +1,3 @@
 # Membre du groupe:
 - VOLPE Dorian
-- ROTOTONDO Eloise
+- ROTONDO Eloise
